@@ -1,0 +1,1 @@
+This is my high school account. My main account should be adr-ada. I lost email access as I used my school email.
